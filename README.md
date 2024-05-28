@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VerushanNaidoo
-- 👀 I’m interested in programming without errors 
+- 👀 I’m interested in win streaks and programming without errors 
 - 🌱 I’m currently learning everything there is to know about tech
 - ⚡ Fun fact: I like turtles
 <!---
